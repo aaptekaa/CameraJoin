@@ -12,6 +12,8 @@
 
    ![изображение](https://user-images.githubusercontent.com/70202505/138297571-04835ec9-8afe-401b-93bf-1bbf65a0c7bb.png)
    ![изображение](https://user-images.githubusercontent.com/70202505/138297764-a8e28b70-3fc3-4308-9e3a-fdda602d03f6.png)
+   ![изображение](https://user-images.githubusercontent.com/70202505/138298167-0fa0e577-df7a-4d87-b602-6d0d4f919e3e.png)
+
 
 
 
